@@ -1,1 +1,0 @@
-# Hunde-Bandana-Weihnachten
